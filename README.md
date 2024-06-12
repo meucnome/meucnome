@@ -10,3 +10,5 @@ Bom dia!
   ETC
   ETC
   E ECT
+![]()
+https://tenor.com/4mTs.gif
