@@ -13,4 +13,5 @@ Bom dia!
 
 
 ![]()
-https://media1.tenor.com/m/ZhKxnVNLXbgAAAAC/young-young-love.gif
+![image](https://github.com/meucnome/meucnome/assets/172387013/ddc82ac7-2b2f-4cb6-9791-695fb635c580)
+
