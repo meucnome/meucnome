@@ -11,4 +11,4 @@ Bom dia!
   ETC
   E ECT
 ![]()
-https://tenor.com/4mTs.gif
+https://media1.tenor.com/m/ZhKxnVNLXbgAAAAC/young-young-love.gif
